@@ -1,0 +1,2 @@
+# resolusiaing
+resolusi aing
